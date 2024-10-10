@@ -1,4 +1,4 @@
 # amaging-code
 I AM JUST STARTING MY GITHUB JOURNEY.
 <br>
-pallavi
+pallavi jha 
